@@ -8,4 +8,4 @@
 - I like purple, cats, and sweet things. What else could someone want?
 - JoJo's lover.
 - 🐈‍⬛ Is the cat in the box okay?
-
+-I've been getting alot of emails recently. which is fine! but do realize, i am a minor. if you're uncomfortable with that, don't email me, if not, then it's fine! i'd be happy to be taught by anyone, as i am still learning python. i'd love a mentor
